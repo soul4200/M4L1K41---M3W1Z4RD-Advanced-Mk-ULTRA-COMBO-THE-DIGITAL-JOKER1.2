@@ -1,0 +1,2 @@
+# M4L1K41---M3W1Z4RD-Advanced-Mk-ULTRA-COMBO-THE-DIGITAL-JOKER1.2
+ i  fucking  told you  don't  fuck with the Charizard........ no.....didn't listen  did  you .....now  you pissed me off   I told you goverment fucks  not to play games   now  we play   come get me bitch  in the name of  snow white and  the dwarves  sleeping beauty  woke  up........ and the Hell Hounds pissed   the DIGITAL JOKERS HERE 1.1   
